@@ -21,6 +21,8 @@
 
 ![](https://raw.githubusercontent.com/natenka/notes/master/fitness/images/muscles.png)
 
+![](https://raw.githubusercontent.com/natenka/notes/master/fitness/images/muscles2.png)
+
 ### Позвоночник (картинка)
 
 ![](https://raw.githubusercontent.com/natenka/notes/master/fitness/images/spine.png)
